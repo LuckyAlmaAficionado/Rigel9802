@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... UI/UX
 - 💬 Ask me about ... anything but not love
 - 📫 How to reach me: ... luckyrigel9802@gmail.com
-- 😄 Pronouns: ... English
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... Nothing
 -->
